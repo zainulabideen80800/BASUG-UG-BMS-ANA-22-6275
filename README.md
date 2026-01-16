@@ -1,1 +1,0 @@
-ANA4315 information technology and bioinformatics
